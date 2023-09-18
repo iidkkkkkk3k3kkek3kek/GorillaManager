@@ -7,3 +7,6 @@ This product is not affiliated with Gorilla Tag or Another Axiom LLC and is not 
 
 # Basil doo doo
 Basil's mod manager is doo doo mine is better 🤑
+
+# BAasil cant ban me from the discord
+basil u cant ban me because i said so
